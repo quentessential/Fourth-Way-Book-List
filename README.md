@@ -1,5 +1,6 @@
 # A Fourth Way Book List
-  Planned inclutions
+Planned inclutions
+------------------
     Primary literature
     Secondary literature
     Internet resources
