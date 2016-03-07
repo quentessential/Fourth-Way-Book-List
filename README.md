@@ -1,5 +1,6 @@
 # Fourth-Way-Book-List
 George Gurdjieff
+----------------
     The Herald of Coming Good
     Beelzebub's Tales to His Grandson (1950)
     Meetings with Remarkable Men (1963)
@@ -8,9 +9,11 @@ George Gurdjieff
     Life is Real Only Then, When 'I Am': All and Everything...
 
 P. D. Ouspensky
+---------------
     The Psychology of Man’s Possible Evolution
     
 Maurice Nicoll
+--------------
     Psychological Commentaries on the Teaching of Gurdjieff and Ouspensky (1996)
     Living Time and the Integration of the Life
     The Mark
@@ -18,6 +21,7 @@ Maurice Nicoll
     Informal Work Talks and Teachings
 
 Rodney Collin
+--------------
     Palms and Patios
     The Theory of Eternal Life
     Hellas
@@ -31,3 +35,4 @@ Rodney Collin
     Mirror of Light (published posthumously)
     
 Jeanne de Salzmann
+------------------
