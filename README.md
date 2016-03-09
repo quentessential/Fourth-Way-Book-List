@@ -1,5 +1,5 @@
 # A Fourth Way Book List
-Planned inclutions
+Planned inclusions
 ------------------
     Primary literature
     Secondary literature
