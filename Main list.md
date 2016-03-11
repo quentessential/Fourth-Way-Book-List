@@ -37,9 +37,14 @@ Rodney Collin
 Jeanne de Salzmann
 ------------------
 
+Boris Mouravieff
+------------------
+- Gnosis I-III
+
 #Internet Resources
 
 - http://www.gurdjieff-heritage-society.org/
 - http://ae.gurdjieff.org.gr/index.htm
 - http://www.gurdjieff-internet.com/
 - http://www.gurdjieff.org/
+- http://www.endlesssearch.co.uk/
