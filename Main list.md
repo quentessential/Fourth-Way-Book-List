@@ -11,6 +11,18 @@ George Gurdjieff
 P. D. Ouspensky
 ---------------
 - The Psychology of Man’s Possible Evolution
+- Tertium Organum: The Third Canon of Thought, a Key to the Enigmas of the World
+- A New Model of the Universe: Principles of the Psychological Method in Its Application to Problems of Science, Religion and Art 
+- Talks with a Devil
+- Strange Life of Ivan Osokin (?)
+- In Search of the Miraculous: Fragments of an Unknown Teaching 
+- The Fourth Way: A Record of Talks and Answers to Questions Based on the Teaching of G. I. Gurdjieff
+- Letters from Russia, 1919 
+- Conscience: The Search for Truth
+- A Further Record: Extracts from Meetings 1928–1945 London and New York
+- The Symbolism of the Tarot
+- The Psychology of Man's Possible Evolution and The Cosmology of Man's possible Evolution, a limited edition of the definitive text of his Psychological and Cosmological Lectures, 1934-1945.
+- P.D. Ouspensky Memorial Collection, Yale University Library, Archive Notes taken from meetings during 1935–1947.
     
 Maurice Nicoll
 --------------
