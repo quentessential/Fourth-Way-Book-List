@@ -53,6 +53,24 @@ Boris Mouravieff
 ------------------
 - Gnosis I-III
 
+Thomas de Hartmann
+------------------
+
+John G. Bennett 
+------------------
+- Witness: the Autobiography of John Bennett (1974)
+- Gurdjieff: the Making of a New World (1974)
+- Idiots in Paris: diaries of J. G. Bennett and Elizabeth Bennett, 1949 (1991)
+
+Alfred Richard Orage
+------------------
+
+Kenneth Macfarlane Walker
+------------------
+- Venture with Ideas (1951)
+- A Study of Gurdjieff's Teaching (1957)
+
+
 #Internet Resources
 
 - http://www.gurdjieff-heritage-society.org/
