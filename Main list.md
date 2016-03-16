@@ -46,8 +46,9 @@ Rodney Collin
 - The Theory of Conscious Harmony (published posthumously)
 - Mirror of Light (published posthumously)
     
-Jeanne de Salzmann
+Jeanne de Salzmann (1889–1990)
 ------------------
+- The Reality of Being: The Fourth Way of Gurdjieff (2010)
 
 Boris Mouravieff
 ------------------
@@ -62,7 +63,7 @@ John G. Bennett
 - Gurdjieff: the Making of a New World (1974)
 - Idiots in Paris: diaries of J. G. Bennett and Elizabeth Bennett, 1949 (1991)
 
-Alfred Richard Orage
+Alfred Richard Orage (1873–1934) (?)
 ------------------
 
 Kenneth Macfarlane Walker
