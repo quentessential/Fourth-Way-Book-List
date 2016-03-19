@@ -71,6 +71,9 @@ Kenneth Macfarlane Walker
 - Venture with Ideas (1951)
 - A Study of Gurdjieff's Teaching (1957)
 
+Jane Heap (?)
+------------------
+
 
 #Internet Resources
 
