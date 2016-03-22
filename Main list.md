@@ -1,5 +1,5 @@
 #Books - Primary
-George Gurdjieff
+George Gurdjieff (1866/1877-1949)
 ----------------
 - The Herald of Coming Good
 - Beelzebub's Tales to His Grandson (1950)
@@ -8,7 +8,7 @@ George Gurdjieff
 - Transcripts of Gurdjieff's Meetings 1941-1946
 - Life is Real Only Then, When 'I Am': All and Everything...
 
-P. D. Ouspensky
+P. D. Ouspensky (1878-1947)
 ---------------
 - The Psychology of Man’s Possible Evolution
 - Tertium Organum: The Third Canon of Thought, a Key to the Enigmas of the World
@@ -24,7 +24,7 @@ P. D. Ouspensky
 - The Psychology of Man's Possible Evolution and The Cosmology of Man's possible Evolution, a limited edition of the definitive text of his Psychological and Cosmological Lectures, 1934-1945.
 - P.D. Ouspensky Memorial Collection, Yale University Library, Archive Notes taken from meetings during 1935–1947.
     
-Maurice Nicoll
+Maurice Nicoll (1884-1953)
 --------------
 - Psychological Commentaries on the Teaching of Gurdjieff and Ouspensky (1996)
 - Living Time and the Integration of the Life
@@ -32,7 +32,7 @@ Maurice Nicoll
 - The New Man : An Interpretation of Some Parables and Miracles of Christ
 - Informal Work Talks and Teachings
 
-Rodney Collin
+Rodney Collin (1909-1956)
 --------------
 - Palms and Patios
 - The Theory of Eternal Life
@@ -46,32 +46,32 @@ Rodney Collin
 - The Theory of Conscious Harmony (published posthumously)
 - Mirror of Light (published posthumously)
     
-Jeanne de Salzmann (1889–1990)
+Jeanne de Salzmann (1889-1990)
 ------------------
 - The Reality of Being: The Fourth Way of Gurdjieff (2010)
 
-Boris Mouravieff
+Boris Mouravieff (1890-1966)
 ------------------
 - Gnosis I-III
 
-Thomas de Hartmann
+Thomas de Hartmann (1885-1956)
 ------------------
 
-John G. Bennett 
+John G. Bennett (1897-1974)
 ------------------
 - Witness: the Autobiography of John Bennett (1974)
 - Gurdjieff: the Making of a New World (1974)
 - Idiots in Paris: diaries of J. G. Bennett and Elizabeth Bennett, 1949 (1991)
 
-Alfred Richard Orage (1873–1934) (?)
+Alfred Richard Orage (1873-1934) (?)
 ------------------
 
-Kenneth Macfarlane Walker
+Kenneth Macfarlane Walker (1882-1966)
 ------------------
 - Venture with Ideas (1951)
 - A Study of Gurdjieff's Teaching (1957)
 
-Jane Heap (?)
+Jane Heap (1883-1964) (?)
 ------------------
 
 
