@@ -74,6 +74,12 @@ Kenneth Macfarlane Walker (1882-1966)
 Jane Heap (1883-1964) (?)
 ------------------
 
+Margaret C. Anderson (1886-1973)
+------------------
+- My Thirty Years' War: An Autobiography (1930) 
+
+- The Unknowable Gurdjieff (1962)
+
 
 #Internet Resources
 
