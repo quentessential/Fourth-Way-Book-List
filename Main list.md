@@ -4,7 +4,7 @@ George Gurdjieff (1866/1877-1949)
 - The Herald of Coming Good
 - Beelzebub's Tales to His Grandson (1950)
 - Meetings with Remarkable Men (1963)
-- Scenario of the Ballet: The Struggle of the Magicians by G. I. Gurdjieff
+- Scenario of the Ballet: The Struggle of the Magicians
 - Transcripts of Gurdjieff's Meetings 1941-1946
 - Life is Real Only Then, When 'I Am': All and Everything...
 
@@ -77,7 +77,6 @@ Jane Heap (1883-1964) (?)
 Margaret C. Anderson (1886-1973)
 ------------------
 - My Thirty Years' War: An Autobiography (1930) 
-
 - The Unknowable Gurdjieff (1962)
 
 
@@ -89,3 +88,6 @@ Margaret C. Anderson (1886-1973)
 - http://www.gurdjieff.org/
 - http://www.endlesssearch.co.uk/
 - http://www.fourthwayschool.org/
+- http://gurdjiefffourthway.org/
+- http://www.holybooks.com/
+- http://www.onlinefourthwayschool.org/
