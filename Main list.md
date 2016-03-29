@@ -1,25 +1,25 @@
 #Books - Primary
 George Gurdjieff (1866/1877-1949)
 ----------------
-- The Herald of Coming Good
+- The Herald of Coming Good (1933)
 - Beelzebub's Tales to His Grandson (1950)
 - Meetings with Remarkable Men (1963)
 - Scenario of the Ballet: The Struggle of the Magicians
-- Transcripts of Gurdjieff's Meetings 1941-1946
-- Life is Real Only Then, When 'I Am': All and Everything...
+- Transcripts of Gurdjieff's Meetings 1941-1946 (2009)
+- Life is Real Only Then, When 'I Am': All and Everything... (1975)
 
 P. D. Ouspensky (1878-1947)
 ---------------
-- The Psychology of Man’s Possible Evolution
+- The Psychology of Man’s Possible Evolution (1950) 
 - Tertium Organum: The Third Canon of Thought, a Key to the Enigmas of the World
 - A New Model of the Universe: Principles of the Psychological Method in Its Application to Problems of Science, Religion and Art 
 - Talks with a Devil
 - Strange Life of Ivan Osokin (?)
-- In Search of the Miraculous: Fragments of an Unknown Teaching 
-- The Fourth Way: A Record of Talks and Answers to Questions Based on the Teaching of G. I. Gurdjieff
+- In Search of the Miraculous: Fragments of an Unknown Teaching (1949)
+- The Fourth Way: A Record of Talks and Answers to Questions Based on the Teaching of G. I. Gurdjieff (1957)
 - Letters from Russia, 1919 
 - Conscience: The Search for Truth
-- A Further Record: Extracts from Meetings 1928–1945 London and New York
+- A Further Record: Extracts from Meetings 1928–1945 London and New York (1986)
 - The Symbolism of the Tarot
 - The Psychology of Man's Possible Evolution and The Cosmology of Man's possible Evolution, a limited edition of the definitive text of his Psychological and Cosmological Lectures, 1934-1945.
 - P.D. Ouspensky Memorial Collection, Yale University Library, Archive Notes taken from meetings during 1935–1947.
@@ -54,11 +54,13 @@ Boris Mouravieff (1890-1966)
 ------------------
 - Gnosis I-III
 
-Thomas de Hartmann (1885-1956)
+Thomas and Olga de Hartmann (1885-1956)
 ------------------
+- Our Life with Mr. Gurdjieff (1964)
 
 John G. Bennett (1897-1974)
 ------------------
+- Gurdjieff: A Very Great Enigma (1963)
 - Witness: the Autobiography of John Bennett (1974)
 - Gurdjieff: the Making of a New World (1974)
 - Idiots in Paris: diaries of J. G. Bennett and Elizabeth Bennett, 1949 (1991)
@@ -70,14 +72,30 @@ Kenneth Macfarlane Walker (1882-1966)
 ------------------
 - Venture with Ideas (1951)
 - A Study of Gurdjieff's Teaching (1957)
+- The Making of Man (1963)
 
-Jane Heap (1883-1964) (?)
+Jane Heap (1883-1964)
 ------------------
+The Notes of Jane Heap (1994) 
 
 Margaret C. Anderson (1886-1973)
 ------------------
 - My Thirty Years' War: An Autobiography (1930) 
 - The Unknowable Gurdjieff (1962)
+
+René Daumal
+------------------
+- Mount Analogue (1959) 
+
+C.S. Nott
+------------------
+- Teachings of Gurdjieff: The Journal of a Pupil (1962) 
+- Journey Through This World: The Second Journal of a Pupil (1969)
+
+Fritz Peters 
+------------------
+- Boyhood with Gurdjieff (1964) 
+- Gurdjieff Remembered (1965)
 
 
 #Internet Resources
