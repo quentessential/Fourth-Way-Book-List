@@ -100,7 +100,10 @@ Fritz Peters
 Kathryn Hulme (1900-1981)
 ------------------
 - Undiscovered Country (1966)
-- 
+
+Irmis Popoff 
+------------------
+- Gurdjieff: His Work on Myself with Others, for the Work (1969) 
 
 #Internet Resources
 
