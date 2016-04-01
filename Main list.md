@@ -97,6 +97,10 @@ Fritz Peters
 - Boyhood with Gurdjieff (1964) 
 - Gurdjieff Remembered (1965)
 
+Kathryn Hulme (1900-1981)
+------------------
+- Undiscovered Country (1966)
+- 
 
 #Internet Resources
 
