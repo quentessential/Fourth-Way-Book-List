@@ -105,6 +105,18 @@ Irmis Popoff
 ------------------
 - Gurdjieff: His Work on Myself with Others, for the Work (1969) 
 
+William Welch 
+------------------
+- What Happened in Between (1972)
+
+A.L. Staveley 
+------------------
+- Memories of Gurdjieff (1978) 
+
+Jean Vaysse
+------------------
+- Toward Awakening (1979)
+
 #Internet Resources
 
 - http://www.gurdjieff-heritage-society.org/
