@@ -23,6 +23,7 @@ P. D. Ouspensky (1878-1947)
 - The Symbolism of the Tarot
 - The Psychology of Man's Possible Evolution and The Cosmology of Man's possible Evolution, a limited edition of the definitive text of his Psychological and Cosmological Lectures, 1934-1945.
 - P.D. Ouspensky Memorial Collection, Yale University Library, Archive Notes taken from meetings during 1935–1947.
+- A Record of Meetings (1992) 
     
 Maurice Nicoll (1884-1953)
 --------------
@@ -58,7 +59,7 @@ Thomas and Olga de Hartmann (1885-1956)
 ------------------
 - Our Life with Mr. Gurdjieff (1964)
 
-John G. Bennett (1897-1974)
+John and Elizabeth Bennett (1897-1974)
 ------------------
 - Gurdjieff: A Very Great Enigma (1963)
 - Witness: the Autobiography of John Bennett (1974)
@@ -116,6 +117,23 @@ A.L. Staveley
 Jean Vaysse
 ------------------
 - Toward Awakening (1979)
+
+René Zuber
+------------------
+- Who Are You, Mr. Gurdjieff? (1980)
+
+Louise Welch
+------------------
+- Orage with Gurdjieff in America (1982)
+
+Rina Hands
+------------------
+- Diary of Madame Egout Pour Sweet (1991)
+
+Luba Gurdjieff
+------------------
+- A Memoir with Recipes (1993)
+
 
 #Internet Resources
 
