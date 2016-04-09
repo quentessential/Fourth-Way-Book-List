@@ -134,6 +134,25 @@ Luba Gurdjieff
 ------------------
 - A Memoir with Recipes (1993)
 
+Henri Tracol 
+------------------
+- The Taste for Things That Are True (1994)
+
+Jacob Needleman & George Baker (eds.)
+------------------
+- Gurdjieff: Essays and Reflections on the Man and his Teaching (1996)
+
+John Pentland
+------------------
+- Exchanges Within (1997)
+
+Paul Beekman Taylor
+------------------
+Shadows of Heaven: Gurdjieff and Toomer (1998) 
+
+Paul Beekman Taylor
+------------------
+- Gurdjieff and Orage: Brothers in Elysium (2001) 
 
 #Internet Resources
 
