@@ -11,18 +11,18 @@ George Gurdjieff (1866/1877-1949)
 P. D. Ouspensky (1878-1947)
 ---------------
 - The Psychology of Man’s Possible Evolution (1950) 
-- Tertium Organum: The Third Canon of Thought, a Key to the Enigmas of the World
-- A New Model of the Universe: Principles of the Psychological Method in Its Application to Problems of Science, Religion and Art 
+- Tertium Organum
+- A New Model of the Universe 
 - Talks with a Devil
 - Strange Life of Ivan Osokin (?)
-- In Search of the Miraculous: Fragments of an Unknown Teaching (1949)
-- The Fourth Way: A Record of Talks and Answers to Questions Based on the Teaching of G. I. Gurdjieff (1957)
+- In Search of the Miraculous (1949)
+- The Fourth Way (1957)
 - Letters from Russia, 1919 
 - Conscience: The Search for Truth
-- A Further Record: Extracts from Meetings 1928–1945 London and New York (1986)
+- A Further Record (1986)
 - The Symbolism of the Tarot
-- The Psychology of Man's Possible Evolution and The Cosmology of Man's possible Evolution, a limited edition of the definitive text of his Psychological and Cosmological Lectures, 1934-1945.
-- P.D. Ouspensky Memorial Collection, Yale University Library, Archive Notes taken from meetings during 1935–1947.
+- The Psychology of Man's Possible Evolution and The Cosmology of Man's possible Evolution
+- P.D. Ouspensky Memorial Collection
 - A Record of Meetings (1992) 
     
 Maurice Nicoll (1884-1953)
@@ -153,6 +153,22 @@ Shadows of Heaven: Gurdjieff and Toomer (1998)
 Paul Beekman Taylor
 ------------------
 - Gurdjieff and Orage: Brothers in Elysium (2001) 
+
+Henriette Lannes 
+------------------
+- Inside a Question (2002) 
+- The Fundamental Quest (2003) 
+
+Paul Beekman Taylor
+------------------
+- Gurdjieff’s America (2004) 
+
+Solange Claustres 
+------------------
+- Becoming Conscious with G.I. Gurdjieff (2005)
+
+
+
 
 #Internet Resources
 
