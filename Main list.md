@@ -141,6 +141,7 @@ Henri Tracol
 Jacob Needleman & George Baker (eds.)
 ------------------
 - Gurdjieff: Essays and Reflections on the Man and his Teaching (1996)
+- The Inner Journey: Views from the Gurdjieff Work (2008) 
 
 John Pentland
 ------------------
@@ -167,6 +168,16 @@ Solange Claustres
 ------------------
 - Becoming Conscious with G.I. Gurdjieff (2005)
 
+Tcheslaw Tcheckhovitch
+------------------
+- Gurdjieff: A Master in Life (2006)
+
+Patty de Llosa
+------------------
+- The Practice of Presence (2006)
+
+
+
 
 
 
@@ -181,3 +192,4 @@ Solange Claustres
 - http://gurdjiefffourthway.org/
 - http://www.holybooks.com/
 - http://www.onlinefourthwayschool.org/
+- http://gurdjieffclub.com/
