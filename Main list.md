@@ -77,7 +77,7 @@ Kenneth Macfarlane Walker (1882-1966)
 
 Jane Heap (1883-1964)
 ------------------
-The Notes of Jane Heap (1994) 
+- The Notes of Jane Heap (1994) 
 
 Margaret C. Anderson (1886-1973)
 ------------------
@@ -176,8 +176,17 @@ Patty de Llosa
 ------------------
 - The Practice of Presence (2006)
 
+Dorothy Phillpotts
+------------------
+- Discovering Gurdjieff (2008)
 
+Jessmin and Dushka Howarth
+------------------
+- It’s Up to Ourselves: a Mother, a Daughter and Gurdjieff (2009) 
 
+Hugh Brockwill Ripman
+------------------
+- Questions and Answers Along the Way (2009)
 
 
 
