@@ -189,6 +189,23 @@ Hugh Brockwill Ripman
 - Questions and Answers Along the Way (2009)
 
 
+SECONDARY?
+------------------
+
+
+Rafael Lefort
+------------------
+-The Teachers of Gurdjieff (1966)
+
+Michel Waldberg 
+------------------
+- Gurdjieff: An Approach to His Ideas (1980) 
+
+Michel Waldberg
+------------------
+- Gurdjieff: An Approach to His Ideas (1980)
+
+
 
 #Internet Resources
 
