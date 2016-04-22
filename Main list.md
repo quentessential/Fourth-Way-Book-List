@@ -6,7 +6,7 @@ George Gurdjieff (1866/1877-1949)
 - Meetings with Remarkable Men (1963)
 - Scenario of the Ballet: The Struggle of the Magicians
 - Transcripts of Gurdjieff's Meetings 1941-1946 (2009)
-- Life is Real Only Then, When 'I Am': All and Everything... (1975)
+- Life is Real Only Then, When 'I Am': All and Everything. (1975)
 
 P. D. Ouspensky (1878-1947)
 ---------------
