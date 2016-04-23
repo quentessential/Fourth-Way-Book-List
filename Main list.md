@@ -66,8 +66,10 @@ John and Elizabeth Bennett (1897-1974)
 - Gurdjieff: the Making of a New World (1974)
 - Idiots in Paris: diaries of J. G. Bennett and Elizabeth Bennett, 1949 (1991)
 
-Alfred Richard Orage (1873-1934) (?)
+Alfred Richard Orage (1873-1934)
 ------------------
+- Psychological Exercises and Essays (1930)
+- The Active Mind: Adventures in Awareness (1954) (?)
 
 Kenneth Macfarlane Walker (1882-1966)
 ------------------
